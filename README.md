@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlexShukla
-- 👀 I’m interested in Crypto Web3 
-- 🌱 I’m currently learning Cryptography 
+- 👀 I’m interested in nothing, tired
+- 🌱 I’m currently learning 🌻
 - 💞️ I’m looking to collaborate on Self
 - 📫 How to reach me "No need to reach 🥲"
 - 😄 Pronouns: he/him
